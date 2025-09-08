@@ -1,1 +1,1 @@
-# jamoaviy-ish
+# loyiha-ishi
